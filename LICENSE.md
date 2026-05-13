@@ -1,4 +1,4 @@
-
+Download automatic escape tsunami for brainrots Scripts for escape tsunami for brainrots, the best script available, featuring god mode and no clip. This powerful tool ensures you
 
 
 
